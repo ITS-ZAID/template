@@ -5,8 +5,7 @@ title: IndiaFreeCall Mod Apk
 subtitle: Premium Unlocked, Unlimited Coins.
 description: 100% Free Call In India.
 
-image: 
-https://justpaste.it/img/836d1682e17ccd98884c0ee51193fff4.jpg
+image: https://justpaste.it/img/836d1682e17ccd98884c0ee51193fff4.jpg
 optimized_image: https://justpaste.it/img/836d1682e17ccd98884c0ee51193fff4.jpg
 category: call
 tags:
