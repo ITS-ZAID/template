@@ -1,5 +1,5 @@
 ---
-date: 2023-06-09 21:36:40
+date: 2023-06-26 21:36:40
 layout: post
 title: Spotify Lite Mod Apk
 subtitle: Fully Premium Unlocked 🔓 Spotify Mod Apk.
@@ -34,7 +34,7 @@ Note: Note:- Download and Very High Audio Quality doesn't work that is server si
 
 ## Download Mod Apk 📩
 
-<p align="center"><a href="https://tinyurl.com/2b4plfxu"><img src="https://img.shields.io/badge/Download-Now-black?&style=for-the-badge&logo=download" width="220" height="70.45"></a></p>
+<p align="center"><a href="https://9qr.de/2HGvbq"><img src="https://img.shields.io/badge/Download-Now-black?&style=for-the-badge&logo=download" width="220" height="70.45"></a></p>
 
 
 ## How To Open Link??
