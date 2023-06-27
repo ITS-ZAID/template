@@ -41,7 +41,7 @@ Valid Till:- 04!07!2023
 
 ## Download Mod Apk 📩
 
-<p align="center"><a href="https://9qr.de/nhrWlh"><img src="https://img.shields.io/badge/Download-Now-black?&style=for-the-badge&logo=download" width="220" height="70.45"></a></p>
+<p align="center"><a href="https://9qr.de/LUk29z"><img src="https://img.shields.io/badge/Download-Now-black?&style=for-the-badge&logo=download" width="220" height="70.45"></a></p>
 
 
 ## How To Open Link??
