@@ -1,5 +1,5 @@
 ---
-date: 2023-06-20 09:14:40
+date: 2023-06-26 09:14:40
 layout: post
 title: Prime Video Mod Apk 
 subtitle: Watch Everywhere and Anytime With Amazon Prime Video Mod Apk.
@@ -24,7 +24,7 @@ Amazon Prime Video Mod Apk
 
 Version:-  v3.0.347.10247
 
-Valid Till:- 27!06!2023
+Valid Till:- 04!07!2023
 
 <!--page-->
 
@@ -41,7 +41,7 @@ Valid Till:- 27!06!2023
 
 ## Download Mod Apk 📩
 
-<p align="center"><a href="http://surl.li/ifryd"><img src="https://img.shields.io/badge/Download-Now-black?&style=for-the-badge&logo=download" width="220" height="70.45"></a></p>
+<p align="center"><a href="https://9qr.de/nhrWlh"><img src="https://img.shields.io/badge/Download-Now-black?&style=for-the-badge&logo=download" width="220" height="70.45"></a></p>
 
 
 ## How To Open Link??
