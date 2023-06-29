@@ -1,5 +1,5 @@
 ---
-date: 2023-06-14 11:16:40
+date: 2023-06-29 11:16:40
 layout: post
 title: FireVideo Mod Apk
 subtitle: All In One Ott In One App, Ads Removed.
@@ -42,11 +42,11 @@ Version:- v14.5
 ## Download Mod Apk 📩
 
 <p align="center"><a href="
-https://m.easysky.in/ptf6pVV"><img src="https://img.shields.io/badge/Download-Now-black?&style=for-the-badge&logo=download" width="220" height="70.45"></a></p>
+https://9qr.de/ohI7i"><img src="https://img.shields.io/badge/Download-Now-black?&style=for-the-badge&logo=download" width="220" height="70.45"></a></p>
 
 
 ## How To Open Link??
 
-<p align="center"><a href="https://t.me/HowToRedirect/9"><img src="https://img.shields.io/badge/HowToOpen-Link-black?&style=for-the-badge&logo=telegram" width="220" height="70.45"></a></p>
+<p align="center"><a href="https://t.me/HowToRedirect/5"><img src="https://img.shields.io/badge/HowToOpen-Link-black?&style=for-the-badge&logo=telegram" width="220" height="70.45"></a></p>
 
 ## Ended 👀
